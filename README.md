@@ -1,1 +1,0 @@
-# innopolis_homework
